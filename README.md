@@ -19,7 +19,7 @@ I'm constantly expanding my knowledge base, keeping up with the latest trends an
 
 ## 📫 Let's Connect!
 
-- **LinkedIn**: [in/rajat-kumar-652998343](#)
+- **LinkedIn**: [https://www.linkedin.com/in/rajat-kumar-652998343](#)
 
 - **Email**: kumar.rajat0978@gmail.com
 
